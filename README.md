@@ -15,7 +15,7 @@ This document will contain his IP, phone, approximate address, full name, and so
 
 I gave him a fake FE bypass and he believed me! I sent him a freaking .exe file. That's how he believed me.
 
-I've also locked Tescalus out of his account! He will be gone forever! I still have access to his account though and will be using it for everything!
+I've also locked Tescalus out of all his account! He will be gone forever! I still have access to his account though and will be using it for everything!
 
 Tescalus dox 1: https://pastebin.com/raw/SL3tEsxyou
 Tescalus dox 2:https://doxbin.com/upload/TescalusDox
