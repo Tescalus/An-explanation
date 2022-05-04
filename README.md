@@ -17,6 +17,11 @@ I gave him a fake FE bypass and he believed me! I sent him a freaking .exe file.
 
 I've also locked Tescalus out of all his account! He will be gone forever! I still have access to his account though and will be using it for everything!
 
-Note: These Doxxes are not completely accurate (For example ZIP codes and personal info.) Loggers are not coded to perfection, they just read different strings and save them to my PC remotely (For example if it reads something that looks like a phone number it may not be so!)
-Tescalus dox 1: https://pastebin.com/raw/SL3tEsxyou
-Tescalus dox 2:https://doxbin.com/upload/TescalusDox
+**These Doxxes are not completely accurate (For example ZIP codes and personal info.) Loggers are not coded to perfection, they just read different strings and save them to my PC remotely (For example if it reads something that looks like a phone number it may not be so!)**
+
+# Tescalus dox 1:
+https://pastebin.com/raw/SL3tEsxyou (Removed by pastebin owners)
+
+# Tescalus dox 2:
+
+Tescalus dox 2: https://doxbin.com/upload/TescalusDox
